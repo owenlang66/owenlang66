@@ -1,4 +1,4 @@
-# 🌱 Environmental Scientist turned Code Ninja 🚀
+# 🌱 Environmental Scientist and Former Farmer turned Code Ninja 🚀
 
 Hey there! I'm Owen Lang, a wanderer at heart with a background in environmental science and policy. After graduating from Loyola Chicago, I spent six months roaming across Europe, working on farms, and soaking up the beauty of sustainable living. 🌍
 
